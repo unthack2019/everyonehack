@@ -1,0 +1,2 @@
+# everyonehack
+safe
